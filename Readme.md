@@ -113,6 +113,7 @@
 
 ---
 
-**Binary Brain** is more than just a name—it's a mindset. Here, every bit and byte counts toward creating a better digital world. Let's code the future together.
+**Co-Founder----Binary Brains**
+**Binary Brain** is more than just a name it's a mindset. Here, every bit and byte counts toward creating a better digital world. Let's code the future together.
 
 ---
